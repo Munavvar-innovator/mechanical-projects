@@ -1,1 +1,1 @@
-# Mechanical-projects
+# mechanical-projects
